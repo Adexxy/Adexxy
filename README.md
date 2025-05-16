@@ -4,7 +4,7 @@
 
 📧 adexxxy@gmail.com  
 📱 +2348035750134 | +2349092935507  
-🔗 [LinkedIn](https://www.linkedin.com/in/owoade-taiwo-5b34a943)
+🔗 [Portfolio](https://www.adexxy.github.io)
 
 ---
 
