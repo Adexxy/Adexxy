@@ -4,7 +4,7 @@
 
 📧 adexxxy@gmail.com  
 📱 +2348035750134 | +2349092935507  
-🔗 [Portfolio](https://www.adexxy.github.io)
+🔗 [Portfolio](https://adexxy.github.io)
 
 ---
 
